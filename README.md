@@ -1,2 +1,2 @@
 # rebellion
-It's an extraordinary team who does not like authority and refuses to obey rules
+they are extraordinary people who do not like authority and refuses to obey rules
